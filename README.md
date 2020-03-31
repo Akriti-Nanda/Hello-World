@@ -1,2 +1,2 @@
 # Hello-World
-Just a start with Github
+Hi all, Akriti here...love to learn and explore new things.
